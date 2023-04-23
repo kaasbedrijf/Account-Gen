@@ -2,7 +2,7 @@
 
 **The Account Generator will allow you to generate multiple accounts in matter of seconds.**
 <br><br>
-**🔥Generator released!** [Click here](https://discord.gg/hgxu6Q3GJh) To buy it!
+**🔥Generator released!** [Click here](https://discord.gg/SmDAcGUZ) To buy it!
 <br><br>
 We provide nothing but the best quality of customer service. No other account generator can match our quality of accounts and service.
 
